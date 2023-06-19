@@ -1,6 +1,6 @@
 # Fra7744
 
-##A versatile and dynamic professional
+##A versatile and dynamic professional##
 
 with vast experience in research and education.
 
